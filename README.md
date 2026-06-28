@@ -1,5 +1,4 @@
-# TamilWorship_Album02_album-2-oil-of-gladness-multilingual
-Album 2 – The Oil of Gladness (5 Languages)
+# Album 2 – The Oil of Gladness (5 Languages)
 
 Multi-language Christian worship album: Spanish, French, German, Chinese, Japanese. Full lyrics for 6 songs.
 
